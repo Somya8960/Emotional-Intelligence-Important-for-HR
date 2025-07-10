@@ -26,3 +26,12 @@ Builds trust and stronger employee relationships.
 Enhances leadership presence and decision-making.
 Boosts team morale, collaborate and productivity.
 Crucial in haldling grievances, feedback, and disciplinary actions tactfully. 
+**How to improve your emotional intelligence.**
+Practice mindfulness and journaling to increase self- awareness.
+Pause and reflect before reacting emotionally.
+Seek feedback from peers on your behaviour.
+Read books like "emotional Intelligence" by Daniel Goleman.
+Engage in active listening perspective taking.
+Use empathy in emails and conversations, not just in face to face interactions
+
+
