@@ -19,3 +19,10 @@ Example: You notice a team member is unusually quiet and check in to offer suppo
 **Social skills**
 Managing relationships, building rapport, resolving conflict effectively.
 Influencing others, working in teams, and leading people with sensivity.
+Example: You Mediate a Disagrrement between team members and help them find common ground.
+**Emotional Intelligence matters in HR  & Leadership**
+Help resolve conflicts fairly and calmly.
+Builds trust and stronger employee relationships.
+Enhances leadership presence and decision-making.
+Boosts team morale, collaborate and productivity.
+Crucial in haldling grievances, feedback, and disciplinary actions tactfully. 
